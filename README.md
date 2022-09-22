@@ -1,0 +1,5 @@
+- oi sou @vitor.bueno.cordeiro@escola.pr.gov.br.
+- eu me interesso em mecânica.
+- atualmente estou cursando o ensino medio.
+- meu projeto foi sobre geografia, fiz um urso polar ficando sem lar, pois a antartica esta derretendo e deixando os ursos sem casa, o urso esta
+- vendo que esta ficando sem casa e vai comprar um ar-condicionado nas casas bahia.
